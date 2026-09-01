@@ -1,1 +1,1 @@
-School Project for Educational Purposes!
+School research and educational details
